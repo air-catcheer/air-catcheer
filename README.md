@@ -1,1 +1,2 @@
-<img src="https://c.tenor.com/3UmraKZO-1QAAAAj/rolling-cat-cat-rolling.gif"/>
+я котик ты котик  
+<img src="https://raw.githubusercontent.com/air-catcheer/air-catcheer/main/kot.gif"/>
