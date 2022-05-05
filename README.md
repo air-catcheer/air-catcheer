@@ -1,1 +1,1 @@
-<img src="https://github.com/CyberPotat42/CyberPotat42/raw/main/kit.gif"/>
+<img src="https://media.giphy.com/media/McTBShHtbF7ThxiOkX/giphy.gif"/>
