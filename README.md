@@ -1,1 +1,1 @@
-<img src="<div class="tenor-gif-embed" data-postid="22772945" data-share-method="host" data-aspect-ratio="1" data-width="100%"><a href="https://tenor.com/view/rolling-cat-cat-rolling-pink-gif-22772945">Rolling Cat Cat Rolling Sticker</a>from <a href="https://tenor.com/search/rolling+cat-stickers">Rolling Cat Stickers</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>"/>
+<img src="https://tenor.com/view/rolling-cat-cat-rolling-pink-gif-22772945"/>
